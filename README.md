@@ -1,2 +1,1 @@
-# Block-9-MasterWorks
-A collection of 100 timeless Art Masterpieces all immutably inscribed on Block 9 Sats. Owning a Genesis Masterpiece will serve as a pass for all subsequent collectible series MasterWorks will ever drop
+Block 9 MasterWorks is a collection of 100 of the some of the greatest Art Masterpieces ever painted. Owning a Block 9 MasterWorks also serves as a MasterPass for Exclusive Access on every collection we ever drop. It also carries with it perks, such as substantial discounts on our future Collections, Merchandise, MasterPass holders channel in discord, Airdrops, and more.... 
